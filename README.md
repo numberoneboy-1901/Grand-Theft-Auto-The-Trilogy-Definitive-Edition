@@ -238,4 +238,4 @@ This is the full free version of Grand Theft Auto: The Trilogy - The Definitive 
 Don’t miss out on the chance to play these iconic titles with modern enhancements. **Download Grand Theft Auto: The Trilogy - The Definitive Edition for free today!**
 
 ---
-**Last updated:** 2026-09-23 07:01:02 UTC
+**Last updated:** 2026-09-23 13:08:10 UTC
